@@ -4,7 +4,7 @@
 
 The Legend of Fireball Mod APK is an exciting mobile game where you control powerful fireballs to defeat enemies across thrilling levels. Developed by TapNation, this strategy-based game challenges players to use their magical abilities wisely. It's a simulation game that focuses on mastering fireball magic, with players progressing through various levels, each more difficult than the last. The game features unlimited money in its Mod APK, allowing players to upgrade their powers and customize their gameplay experience freely. 
 
-## Download Now: 👉👉 https://heyapks.com/
+## Download Now: 👉👉 https://heyapks.com/the-legend-of-fireball.html
 ![the lengend](https://github.com/user-attachments/assets/1e5e738f-701f-4488-8069-b3edae9a823e)
 
 ## Features of The Legend of Fireball
